@@ -1,4 +1,4 @@
-# Creating an sponsored post for Instagram
+# Creating an sponsored post for an Instagram
 Creating an Sponsored post for an Instagram
 
 
